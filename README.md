@@ -1,1 +1,0 @@
-# gipzyagungputra.github.io
